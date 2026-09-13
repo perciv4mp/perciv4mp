@@ -3,7 +3,8 @@
 резал,
 лез за кем-то
 вгрызаться в бока.
-<img width="540" height="200" alt="image" src="https://github.com/user-attachments/assets/99dc5dd8-bbe5-4919-aed3-fb5c3b71a4d7" />
+<img width="850" height="200" alt="image" src="https://github.com/user-attachments/assets/e91a9cfc-4a8b-4305-a85e-4244cad4b3dd" />
+
 
   на небе, красный, как марсельеза,
 вздрагивал, околевая, закат.</center>
